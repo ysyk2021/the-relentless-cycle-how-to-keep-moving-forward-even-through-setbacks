@@ -1,4 +1,4 @@
-Chapter 1: Introduction: The Benefits of Adopting a Relentless Mindset
+The Benefits of Adopting a Relentless Mindset
 ======================================================================
 
 Adopting a relentless mindset can lead to numerous benefits in all areas of life. In this chapter, we will explore the benefits of developing a relentless mindset.

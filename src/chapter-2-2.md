@@ -1,4 +1,4 @@
-Chapter 2: Defining the Relentless Cycle: Recognizing the Connection Between Resilience and Success
+Recognizing the Connection Between Resilience and Success
 ===================================================================================================
 
 Resilience is closely tied to success in all areas of life. In this chapter, we will explore the connection between resilience and success.

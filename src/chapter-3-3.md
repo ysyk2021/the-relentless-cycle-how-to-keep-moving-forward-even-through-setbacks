@@ -1,4 +1,4 @@
-Chapter 3: Strategies for Building a Relentless Mindset: Creating a Plan for Consistent Practice of Resilience and Perseverance
+Creating a Plan for Consistent Practice of Resilience and Perseverance
 ===============================================================================================================================
 
 Building a relentless mindset requires consistent practice of resilience and perseverance. In this chapter, we will explore some strategies for creating a plan to build a relentless mindset that can help individuals overcome setbacks and keep moving forward.

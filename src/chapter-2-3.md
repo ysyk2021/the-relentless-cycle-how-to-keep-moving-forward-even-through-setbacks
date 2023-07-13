@@ -1,4 +1,4 @@
-Chapter 2: Defining the Relentless Cycle: Creating a Framework for the Relentless Cycle
+Creating a Framework for the Relentless Cycle
 =======================================================================================
 
 The relentless cycle is a framework for approaching setbacks and challenges with resilience and perseverance. In this chapter, we will define the elements of the relentless cycle and create a framework for its implementation.

@@ -1,4 +1,4 @@
-Chapter 6: Applying the Relentless Cycle Across Different Areas of Life: Using the Relentless Cycle for Community Involvement and Social Justice
+Using the Relentless Cycle for Community Involvement and Social Justice
 ================================================================================================================================================
 
 The relentless cycle can be applied to different areas of life, including community involvement and social justice. In this chapter, we will explore how to use the principles of the relentless cycle for community involvement and social justice.

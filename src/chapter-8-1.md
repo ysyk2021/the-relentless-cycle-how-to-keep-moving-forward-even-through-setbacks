@@ -1,4 +1,4 @@
-Chapter 8: Conclusion: Recap of Key Points
+Recap of Key Points
 ==========================================
 
 In this book, we have explored the principles of the relentless cycle and how they can be applied in different areas of life. From overcoming setbacks and challenges to achieving personal growth and fulfillment, the relentless cycle provides a framework for maintaining momentum towards our ultimate vision.

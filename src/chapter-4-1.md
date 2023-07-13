@@ -1,4 +1,4 @@
-Chapter 4: Tools and Techniques for the Relentless Cycle: Using Positive Self-Talk and Affirmations for Strengthening Mental Toughness
+Using Positive Self-Talk and Affirmations for Strengthening Mental Toughness
 ======================================================================================================================================
 
 Positive self-talk and affirmations are powerful tools for developing mental toughness and resilience in the face of setbacks. In this chapter, we will explore how positive self-talk and affirmations can support the principles of the relentless cycle and provide some tips for incorporating them into your daily routine.

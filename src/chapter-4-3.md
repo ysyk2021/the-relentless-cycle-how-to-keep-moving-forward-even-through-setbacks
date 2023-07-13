@@ -1,4 +1,4 @@
-Chapter 4: Tools and Techniques for the Relentless Cycle: Leveraging Support Systems and Mentorship for Motivation and Encouragement
+Leveraging Support Systems and Mentorship for Motivation and Encouragement
 ====================================================================================================================================
 
 Leveraging support systems and mentorship can be a powerful tool for developing resilience, perseverance, and a growth mindset in the relentless cycle. In this chapter, we will explore how support systems and mentorship can support the principles of the relentless cycle and provide some tips for incorporating them into your daily routine.

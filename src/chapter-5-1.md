@@ -1,4 +1,4 @@
-Chapter 5: Overcoming Obstacles and Challenges in the Relentless Cycle: Navigating Failure and Overcoming Fear of Trying Again
+Navigating Failure and Overcoming Fear of Trying Again
 ==============================================================================================================================
 
 Navigating failure and overcoming the fear of trying again is an important part of the relentless cycle. In this chapter, we will explore strategies for overcoming obstacles and challenges related to failure and fear of trying again.

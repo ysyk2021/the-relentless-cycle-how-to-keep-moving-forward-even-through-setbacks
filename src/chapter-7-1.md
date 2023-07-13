@@ -1,4 +1,4 @@
-Chapter 7: Measuring Success in the Relentless Cycle: Metrics and Key Performance Indicators (KPIs) for the Relentless Cycle
+Metrics and Key Performance Indicators (KPIs) for the Relentless Cycle
 ============================================================================================================================
 
 Measuring success in the relentless cycle involves tracking progress towards goals and identifying areas for improvement. In this chapter, we will explore metrics and key performance indicators (KPIs) that can be used to measure success in the relentless cycle.

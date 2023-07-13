@@ -1,4 +1,4 @@
-Chapter 3: Strategies for Building a Relentless Mindset: Building Self-Awareness and Understanding of Personal Strengths and Weaknesses
+Building Self-Awareness and Understanding of Personal Strengths and Weaknesses
 =======================================================================================================================================
 
 Building a relentless mindset requires self-awareness and understanding of personal strengths and weaknesses. In this chapter, we will explore some strategies for building self-awareness and understanding personal strengths and weaknesses.

@@ -1,4 +1,4 @@
-Chapter 3: Strategies for Building a Relentless Mindset: Developing a System for Goal Setting and Planning
+Developing a System for Goal Setting and Planning
 ==========================================================================================================
 
 Developing a system for goal setting and planning is crucial for building a relentless mindset. In this chapter, we will explore strategies for developing a system for goal setting and planning.

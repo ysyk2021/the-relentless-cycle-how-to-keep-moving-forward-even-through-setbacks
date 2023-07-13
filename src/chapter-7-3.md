@@ -1,4 +1,4 @@
-Chapter 7: Measuring Success in the Relentless Cycle: Continuously Improving Relentless Approaches and Mindsets
+Continuously Improving Relentless Approaches and Mindsets
 ===============================================================================================================
 
 Measuring success in the relentless cycle involves more than just achieving a specific goal. It also involves continuously improving our approaches and mindsets, and using setbacks as opportunities for growth and learning. In this chapter, we will explore how to measure success in the relentless cycle and provide some tips for continuously improving approaches and mindsets.

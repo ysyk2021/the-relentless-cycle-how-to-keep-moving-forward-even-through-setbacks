@@ -1,4 +1,4 @@
-Chapter 2: Defining the Relentless Cycle: Identifying the Components of a Relentless Mindset
+Identifying the Components of a Relentless Mindset
 ============================================================================================
 
 The relentless cycle is a framework for approaching setbacks and challenges with resilience and perseverance. In this chapter, we will identify the components of a relentless mindset.

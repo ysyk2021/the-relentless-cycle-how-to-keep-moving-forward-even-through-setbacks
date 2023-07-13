@@ -1,4 +1,4 @@
-Chapter 4: Tools and Techniques for the Relentless Cycle: Incorporating Mindfulness and Meditation into Daily Practice
+Incorporating Mindfulness and Meditation into Daily Practice
 ======================================================================================================================
 
 Incorporating mindfulness and meditation into daily practice can be a powerful tool for developing resilience, perseverance, and a growth mindset. In this chapter, we will explore how these practices can support the principles of the relentless cycle and provide some tips for incorporating them into your daily routine.

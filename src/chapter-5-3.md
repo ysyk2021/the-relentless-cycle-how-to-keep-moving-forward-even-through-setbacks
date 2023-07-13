@@ -1,4 +1,4 @@
-Chapter 5: Overcoming Obstacles and Challenges in the Relentless Cycle: Dealing with Setbacks and Maintaining Resilience in Adversity
+Dealing with Setbacks and Maintaining Resilience in Adversity
 =====================================================================================================================================
 
 Setbacks and challenges are inevitable in life, but they do not have to derail us from achieving our goals. In this chapter, we will explore strategies for overcoming obstacles and maintaining resilience in adversity.
