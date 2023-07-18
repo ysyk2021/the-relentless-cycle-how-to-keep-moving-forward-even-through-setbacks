@@ -1,8 +1,5 @@
 # Conclusion
 
-Chapter 8: Conclusion
-=====================
-
 In this book, we have explored the concept of the relentless cycle and how it can help us keep moving forward even through setbacks. We have discussed the importance of resilience, perseverance, and a growth mindset in achieving our goals and overcoming obstacles. In this final chapter, we will recap the key points and provide some final thoughts and recommendations.
 
 Recap of Key Points
