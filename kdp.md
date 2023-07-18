@@ -10,7 +10,6 @@ Whether you're an entrepreneur, artist, or simply someone looking to achieve per
 
 Above all, "The Relentless Cycle" is a reminder that success is not about avoiding setbacks, but rather about learning from them and using them as opportunities for growth. If you're ready to break free from the cycle of setbacks and keep pushing forward towards your goals, then this book is for you.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
