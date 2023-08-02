@@ -1,4 +1,4 @@
-Chapter 5: Using Positive Self-Talk and Affirmations for Strengthening Mental Toughness
+Using Positive Self-Talk and Affirmations for Strengthening Mental Toughness
 =======================================================================================
 
 In this chapter, we will explore the power of positive self-talk and affirmations in developing and strengthening mental toughness. By cultivating a positive inner dialogue and reinforcing empowering beliefs, individuals can enhance their resilience, overcome setbacks, and maintain a strong mindset even in the face of challenges.

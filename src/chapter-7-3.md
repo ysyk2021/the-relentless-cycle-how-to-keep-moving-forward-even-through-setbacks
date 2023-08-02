@@ -1,4 +1,4 @@
-Chapter 14: Continuously Improving Relentless Approaches and Mindsets
+Continuously Improving Relentless Approaches and Mindsets
 =====================================================================
 
 In this chapter, we will delve into the importance of continuously improving our approaches and mindsets within the relentless cycle. We will explore strategies and techniques that can help us overcome setbacks, enhance our resilience, and maintain a positive and growth-oriented mindset throughout our journey.

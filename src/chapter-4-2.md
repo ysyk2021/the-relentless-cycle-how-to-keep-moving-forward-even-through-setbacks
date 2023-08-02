@@ -1,4 +1,4 @@
-Chapter 8: Incorporating Mindfulness and Meditation into Daily Practice
+Incorporating Mindfulness and Meditation into Daily Practice
 =======================================================================
 
 In this chapter, we will explore the powerful practice of mindfulness and meditation and how it can help individuals navigate the relentless cycle of setbacks and keep moving forward. By incorporating these practices into your daily routine, you can cultivate a sense of calm, clarity, and resilience that will support you on your journey towards success.

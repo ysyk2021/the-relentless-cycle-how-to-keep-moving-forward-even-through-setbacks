@@ -1,4 +1,4 @@
-Chapter 10: Recognizing the Connection Between Resilience and Success
+Recognizing the Connection Between Resilience and Success
 =====================================================================
 
 In this chapter, we will explore the profound connection between resilience and success. Understanding how these two concepts are intertwined will empower you to persevere through setbacks and continue moving forward on your journey towards achieving your goals.

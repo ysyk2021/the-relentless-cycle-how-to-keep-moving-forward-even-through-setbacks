@@ -1,4 +1,4 @@
-Chapter 8: Leveraging Support Systems and Mentorship for Motivation and Encouragement
+Leveraging Support Systems and Mentorship for Motivation and Encouragement
 =====================================================================================
 
 In this chapter, we will explore the importance of support systems and mentorship in harnessing motivation and encouragement while navigating the relentless cycle of setbacks and progress. By building a network of support and seeking guidance from experienced mentors, individuals can find the inspiration and guidance needed to stay motivated and resilient on their journey towards success.

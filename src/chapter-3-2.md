@@ -1,4 +1,4 @@
-Chapter 8: Developing a System for Goal Setting and Planning
+Developing a System for Goal Setting and Planning
 ============================================================
 
 In this chapter, we will explore the importance of developing a robust system for goal setting and planning to keep moving forward even through setbacks. Having a well-defined process will help you set clear goals, create actionable plans, and stay motivated on your journey towards success. Here, we will discuss key steps and strategies for establishing an effective system.

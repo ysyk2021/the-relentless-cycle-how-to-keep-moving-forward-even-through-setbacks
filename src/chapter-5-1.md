@@ -1,4 +1,4 @@
-Chapter 14: Navigating Failure and Overcoming Fear of Trying Again
+Navigating Failure and Overcoming Fear of Trying Again
 ==================================================================
 
 In this chapter, we will explore the crucial process of navigating failure and overcoming the fear of trying again within the relentless cycle. We will discuss strategies and techniques that can help you develop resilience, learn from failure, and regain confidence in your relentless pursuit of success.

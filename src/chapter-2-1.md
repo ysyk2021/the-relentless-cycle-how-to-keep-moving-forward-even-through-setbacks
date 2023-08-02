@@ -1,4 +1,4 @@
-Chapter 8: Identifying the Components of a Relentless Mindset
+Identifying the Components of a Relentless Mindset
 =============================================================
 
 In this chapter, we will explore the key components that make up a relentless mindset. Understanding these components is crucial for developing the resilience and determination needed to keep moving forward, even in the face of setbacks and challenges.

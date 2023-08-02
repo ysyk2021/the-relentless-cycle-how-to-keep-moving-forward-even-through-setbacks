@@ -1,4 +1,4 @@
-Chapter 12: Managing Stress and Burnout in High-Pressure Environments
+Managing Stress and Burnout in High-Pressure Environments
 =====================================================================
 
 In this chapter, we will explore strategies for effectively managing stress and preventing burnout in high-pressure environments. We will discuss the importance of self-care, setting boundaries, and cultivating resilience to maintain well-being and keep moving forward even in the face of setbacks.
