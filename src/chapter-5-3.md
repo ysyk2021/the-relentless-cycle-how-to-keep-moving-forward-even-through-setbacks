@@ -1,5 +1,3 @@
-Dealing with Setbacks and Maintaining Resilience in Adversity
-=========================================================================
 
 In this chapter, we will explore strategies for effectively dealing with setbacks and maintaining resilience in the face of adversity. By developing the ability to navigate through challenges, you can stay determined and keep moving forward on your relentless cycle towards success.
 

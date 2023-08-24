@@ -1,5 +1,3 @@
-Chapter 4: Tools and Techniques for the Relentless Cycle
-========================================================
 
 Tools and techniques can be powerful resources for developing resilience, perseverance, and a growth mindset in the relentless cycle. In this chapter, we will explore some common tools and techniques that individuals can use to support their journey towards mental toughness.
 

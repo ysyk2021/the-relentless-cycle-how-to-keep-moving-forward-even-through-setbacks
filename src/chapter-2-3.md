@@ -1,5 +1,3 @@
-Creating a Framework for the Relentless Cycle
-========================================================
 
 In this chapter, we will explore a framework for the relentless cycle. This framework serves as a guide to help individuals navigate setbacks and keep moving forward with determination and resilience.
 

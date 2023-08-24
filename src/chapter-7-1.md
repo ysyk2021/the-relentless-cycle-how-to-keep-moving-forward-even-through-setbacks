@@ -1,5 +1,3 @@
-Metrics and Key Performance Indicators (KPIs) for the Relentless Cycle
-==================================================================================
 
 In this chapter, we will explore the importance of metrics and Key Performance Indicators (KPIs) in measuring and evaluating progress within the relentless cycle. By using data-driven measurements, you can track your performance, identify areas for improvement, and stay on track towards your goals.
 

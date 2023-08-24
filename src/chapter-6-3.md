@@ -1,5 +1,3 @@
-Using the Relentless Cycle for Community Involvement and Social Justice
-==================================================================================
 
 In this chapter, we will explore how the principles of the Relentless Cycle can be applied to community involvement and social justice. By harnessing the power of continuous improvement, resilience, and perseverance, individuals can make a meaningful impact on their communities and work towards creating a more just and equitable society.
 

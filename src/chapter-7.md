@@ -1,5 +1,3 @@
-Chapter 7: Measuring Success in the Relentless Cycle
-====================================================
 
 Measuring success in the relentless cycle involves tracking progress towards goals and identifying areas for improvement. In this chapter, we will explore different ways of measuring success in the relentless cycle.
 

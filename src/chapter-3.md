@@ -1,5 +1,3 @@
-Chapter 3: Strategies for Building a Relentless Mindset
-=======================================================
 
 Building a relentless mindset requires intentional effort and consistent practice. In this chapter, we will explore some strategies for building a relentless mindset that can help individuals overcome setbacks and keep moving forward.
 

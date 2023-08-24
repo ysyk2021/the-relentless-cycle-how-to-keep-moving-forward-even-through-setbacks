@@ -1,5 +1,3 @@
-Chapter 6: Applying the Relentless Cycle Across Different Areas of Life
-=======================================================================
 
 The principles of the relentless cycle can be applied across different areas of life. In this chapter, we will explore how the relentless cycle can be used for career advancement and entrepreneurship, personal growth and fulfillment, and community involvement and social justice.
 
